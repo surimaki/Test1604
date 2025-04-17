@@ -1,1 +1,1 @@
-# Chaiang Rai
+# Chiang Rai
